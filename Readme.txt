@@ -1,6 +1,1 @@
-Thanks for downloading this template!
-
-Template Name: iPortfolio
-Template URL: https://bootstrapmade.com/iportfolio-bootstrap-portfolio-websites-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+kumusta ,bukod sa pagiging manlalaro sa komunidad , dito nahuhubog ang aking pagkatao kung pano nabuo ang Mina'tLikha. Lahat ay nag-uugat sa sarili bago ang iba,,,,
